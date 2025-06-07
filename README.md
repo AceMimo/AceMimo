@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AceMimo
+- 👋 Hi, I’m Mimo
 - 👀 I’m interested in Design, Physics and Automobiles
 - 🌱 I’m currently in high school
 - 📫 You can reach me on discord - @acemimo
