@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AceMimo
-- 👀 I’m interested in Robotics, Graphic Design, Coding and Cars
+- 👀 I’m interested in Design, Physics and Automobiles
 - 🌱 I’m currently in high school
-- 📫 You can reach me on discord - @ acemimo
+- 📫 You can reach me on discord - @acemimo
 - 😄 Pronouns: he/him
 
 <!---
