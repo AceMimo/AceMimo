@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mimo
-- 👀 I’m interested in Design, Physics and Automobiles
+- 👀 I’m interested in Design, Physics and Music
 - 🌱 I’m currently in high school
 - 📫 You can reach me on discord - @acemimo
 - 😄 Pronouns: he/him
